@@ -1,6 +1,6 @@
 # 八戒机场官网地址
 
-最新地址：[bajie.la](https://bajie.la/register?aff=OpjHo2xr)
+最新地址：[bajie.pro](https://bajie.pro/register?aff=OpjHo2xr)
 
 ## 八戒介绍
 
